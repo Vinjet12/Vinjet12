@@ -1,6 +1,5 @@
 Vincent James
- I’m interested in  Software Engineering
-  Currently  a Computer Science Student
+   Currently  a Computer Science Student
   
 munenevincent069@gmail.com
 <!---
